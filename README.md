@@ -9,12 +9,12 @@
 - **Cost:** $XYZ
 
 ## Ingredients
-- 2 ounces rice vermicelli
-- 8 rice wrappers (8.5 inch diameter)
-- 8 large cooked shrimp - peeled, deveined and cut in half
-- 1 1/3 tablespoons chopped fresh Thai basil
-- 3 tablespoons chopped fresh mint leaves
-- 3 tablespoons chopped fresh cilantro
+- 2 ounces rice vermicelli ($0.33/ounce)
+- 8 [rice wrappers](https://www.amazon.com/Tanisa-Organic-Spring-Paper-Wrapper/dp/B07KXPKRNK/ref=sr_1_1_sspa?crid=2RHJMN4O5TA7Q&keywords=rice+wrappers+for+spring+rolls&qid=1569415266&s=gateway&sprefix=rice+wr%2Caps%2C136&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFTWFNGSlNZWkdFQUMmZW5jcnlwdGVkSWQ9QTA1MTc2NTgxTTBQSUdXV0cxTUdYJmVuY3J5cHRlZEFkSWQ9QTAyNzI2NzYxNzdMNE5RWTBLNkpVJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==):, 8.5 inch, 22cm, diameter $4
+- 8 large cooked [shrimp](https://www.amazon.com/Sea-Best-Peeled-Deveined-Shrimp/dp/B00WB87NX6/ref=sr_1_1?keywords=large+shrimp&qid=1569415441&s=gateway&sr=8-1) - peeled, deveined and cut in half ($11.68-14.59)
+- 1 1/3 tablespoons chopped [fresh Thai basil](https://www.amazon.com/Thai-Sweet-Basil-Fresh-Oz/dp/B00RA27OOQ/ref=sr_1_4?keywords=thai+basil&qid=1569415600&s=gateway&sr=8-4): $0.88
+- 3 tablespoons chopped [fresh mint leaves](https://www.amazon.com/Fresh-Mint-Leaves-3-oz/dp/B01EDDEPUK/ref=sr_1_11?keywords=mint+leaves&qid=1569415717&s=gateway&sr=8-11): $3.96
+- 3 tablespoons chopped [fresh cilantro](https://www.farmersdaughterherbs.com/price-list): $0.60
 - 2 leaves lettuce, chopped
 - 4 teaspoons fish sauce
 - 1/4 cup water
