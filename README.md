@@ -19,7 +19,7 @@
 - 4 teaspoons [fish sauce](https://www.amazon.com/Squid-Brand-Fish-Sauce/dp/B0000CNU55/ref=sr_1_20_sspa?keywords=fish+sauce&qid=1569416804&s=gateway&sr=8-20-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFDQVA3NFQyQVZNU0ImZW5jcnlwdGVkSWQ9QTAxNzc1MTZNRDZGNExRR0gxRDcmZW5jcnlwdGVkQWRJZD1BMDI5NDMzMjI2QUVFQkdJQk8zTk4md2lkZ2V0TmFtZT1zcF9tdGYmYWN0aW9uPWNsaWNrUmVkaXJlY3QmZG9Ob3RMb2dDbGljaz10cnVl) ($0.33)
 - 1/4 cup water
 - 2 tablespoons fresh [lime juice](https://www.instacart.com/stop-shop/products/2677342-limes-each) ($0.99)
-- 1 clove [garlic](https://www.amazon.com/CALIFORNIA-SOFTNECK-PLANTING-GROWING-COUNTRY/dp/B01I216LPG/ref=sr_1_13?keywords=clove+of+garlic&qid=1569417127&s=gateway&sr=8-13), minced
+- 1 minced clove [garlic](https://www.amazon.com/CALIFORNIA-SOFTNECK-PLANTING-GROWING-COUNTRY/dp/B01I216LPG/ref=sr_1_13?keywords=clove+of+garlic&qid=1569417127&s=gateway&sr=8-13)
 - 2 tablespoons white sugar
 - 1/2 teaspoon garlic chili sauce
 - 3 tablespoons hoisin sauce
