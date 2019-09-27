@@ -35,8 +35,9 @@ I couldn't find my mother's recipe so this'll have to do
 5. Serve rolled spring rolls with the fish sauce and hoisin sauce mixtures.
 
 ## Note:
-The fish sauce, rice vermicelli, chili garlic sauce, hoisin sauce, and rice wrappers can be found at Asian food markets.
-The shrimp accounts for most of the cost and the recipe can be altered according to your budget
+- The fish sauce, rice vermicelli, chili garlic sauce, hoisin sauce, and rice wrappers can be found at Asian food markets.
+- The shrimp accounts for most of the cost and the recipe can be altered according to your budget
+- If so desired, make one sauce
 
 ## Taken From 
 - [Vietnamese Fresh Spring Rolls](https://www.allrecipes.com/recipe/24239/vietnamese-fresh-spring-rolls/?internalSource=hub%20recipe&referringId=703&referringContentType=Recipe%20Hub&clickId=cardslot%206)
