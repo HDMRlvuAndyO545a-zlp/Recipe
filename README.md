@@ -1,4 +1,6 @@
-# Recipe
+# About
+
+I couldn't find my mother's recipe so this'll have to do
 
 ![Spring Rolls](https://images.media-allrecipes.com/userphotos/720x405/5265636.jpg)
 
