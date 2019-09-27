@@ -39,7 +39,7 @@ The fish sauce, rice vermicelli, chili garlic sauce, hoisin sauce, and rice wrap
 
 The shrimp accounts for most of the cost and the recipe can be altered according to your budget
 
-If so desired, make one sauce
+If so desired make one sauce but in a larger quantity
 
 ## Taken From 
 - [Vietnamese Fresh Spring Rolls](https://www.allrecipes.com/recipe/24239/vietnamese-fresh-spring-rolls/?internalSource=hub%20recipe&referringId=703&referringContentType=Recipe%20Hub&clickId=cardslot%206)
