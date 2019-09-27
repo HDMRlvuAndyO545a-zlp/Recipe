@@ -6,7 +6,7 @@
 - **Cook:** 5 Minutes
 - **Total:** 50 Minutes
 - **Servings:** 8 Servings
-- **Cost:** $XYZ
+- **Cost:** $27.45-30.36
 
 ## Ingredients
 - 2 ounces [rice vermicelli](https://www.amazon.com/Vietnamese-Stick-vermicelli-Three-Ladies/dp/B00ADHM9WW?ref_=fsclp_pl_dp_1) ($0.66)
@@ -34,8 +34,7 @@
 
 ## Note:
 The fish sauce, rice vermicelli, chili garlic sauce, hoisin sauce, and rice wrappers can be found at Asian food markets.
-Partner Tip
-Reynolds® parchment can be used for easier cleanup/removal from the pan.
+The shrimp accounts for most of the cost and the recipe can be altered according to your budget
 
 ## Taken From 
 - [Vietnamese Fresh Spring Rolls](https://www.allrecipes.com/recipe/24239/vietnamese-fresh-spring-rolls/?internalSource=hub%20recipe&referringId=703&referringContentType=Recipe%20Hub&clickId=cardslot%206)
