@@ -6,7 +6,7 @@
 - **Cook:** 5 Minutes
 - **Total:** 50 Minutes
 - **Servings:** 8 Servings
-- **Cost:** $27.45-30.36
+- **Cost:** $27.45-$30.36
 
 ## Ingredients
 - 2 ounces [rice vermicelli](https://www.amazon.com/Vietnamese-Stick-vermicelli-Three-Ladies/dp/B00ADHM9WW?ref_=fsclp_pl_dp_1) ($0.66)
